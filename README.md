@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @xXGURZYXx
 - 👀 I’m interested in video games robotics drift cars science math lua java phyton and c/c++
 - 🌱 I’m currently learning phyton and lua
-- 💞️ I’m looking to collaborate on anything im solitary
+- 💞️ I’m looking to collaborate im a noob so if you want to colaborate be redy to see a noob
 - 📫 How to reach me just be a pro
 
 <!---
